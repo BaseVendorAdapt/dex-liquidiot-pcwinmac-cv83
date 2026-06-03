@@ -1,4 +1,4 @@
-# 
+# Open Source dex liquidity bot modules complémentaires pour Mac OS | Sécurisé dex liquidity bot modules complémentaires pour PC Windows. Avec ordres take-profit et optimisation des frais de gaz — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
